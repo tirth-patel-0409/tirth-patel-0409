@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **tirthpatel42722@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1jxuJJluv3Tvd8NV2YpDOlztmp-n0t7Zj/view?usp=drive_link](https://drive.google.com/file/d/1jxuJJluv3Tvd8NV2YpDOlztmp-n0t7Zj/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1jxuJJluv3Tvd8NV2YpDOlztmp-n0t7Zj/view?usp=drive_link](https://drive.google.com/file/d/1p7nIIrNmv6nxvhxLsQb-eKmeN4fJxgdy/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
